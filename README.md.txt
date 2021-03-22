@@ -1,2 +1,0 @@
-#
-Project1_Revika Tadzkia_XIRPL3
